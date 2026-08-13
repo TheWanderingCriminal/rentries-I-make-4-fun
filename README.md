@@ -7,3 +7,4 @@ https://rentry.co/p0tato-introduction
 
 Older ones:
 https://rentry.co/7kxktq3m
+https://rentry.co/bloodied-striped_shirt
